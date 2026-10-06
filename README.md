@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GOCG910430MCHNHR03
+GOCG910430MCHNHR03
